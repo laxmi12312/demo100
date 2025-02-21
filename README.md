@@ -1,0 +1,2 @@
+"polytechnic collage" 
+"polytechnic college"
